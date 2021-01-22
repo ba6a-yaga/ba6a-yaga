@@ -1,4 +1,4 @@
-### 😎 I am lead developer ;)
+### 😎 Резюме готовится... ;)
 
 <!--
 **ba6a-yaga/ba6a-yaga** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
